@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cons0000
+- 👀 I’m interested in ...anything tbh
+- 🌱 I’m currently learning ...basic coding but i wanna get into shit to do with security and things like that
+- 💞️ I’m looking to collaborate on ...
